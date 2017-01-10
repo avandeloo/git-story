@@ -1,1 +1,1 @@
-Mary had a little lamb. Whos fleece was white as snow. Until the big bad wolf came along. He huffed and he puffed and he signed an eviction notice.
+Mary had a little lamb. Whos fleece was white as snow. Until the big bad wolf came along. He huffed and he puffed and he signed an eviction notice. Little did he know that she had insurance and was safely away on vacation with her sheep.
